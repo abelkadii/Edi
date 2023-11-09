@@ -1,1 +1,1 @@
-# Edi
+private Education Institute
